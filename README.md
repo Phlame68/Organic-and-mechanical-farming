@@ -1,8 +1,4 @@
-organic and mechanical farming
-astrological and universal poetry
-Movies/actor
-needs getting funded 
-now as the raining season approaching for the farming season
+
 0xC9FF96d90F73E17De42dDF30D6cA80062489279B
 bc1qgtgxd3dlzvlwhqg23pv5cys4lepp3h5qgj8ku0
 TGXJ8ZKL1hNQBDjZxBBjXcY66PoJmNDvB5
